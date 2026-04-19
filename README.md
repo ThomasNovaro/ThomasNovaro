@@ -4,4 +4,4 @@ computer engineering student [@PoliTo](https://www.polito.it/en) by day ~ fronte
 
 previously HoD IT [@JEToP](https://jetop.com/en)
 
-want to know more?[here's my website](https://thomasnovaro.com) (still wip)
+want to know more? [here's my website](https://thomasnovaro.com) (still wip)
